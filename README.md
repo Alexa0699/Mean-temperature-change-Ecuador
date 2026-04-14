@@ -1,0 +1,1 @@
+# Mean-temperature-change-Ecuador
